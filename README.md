@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate with my team👩🏻‍🤝‍🧑🏿👩🏻‍🤝‍🧑🏿
 - 🤔 I’m looking for help from my lecturers in doubt clarification🤔
 - 💬 Ask me about myself😛
-- 📫 How to reach me:- by my email adress:poojithavarmasaripalli2gmail.com
+- 📫 How to reach me:- by my email adress:poojithavarmasaripalli@gmail.com
 - 😄 Pronouns:poojitha,bindu,she,her
 - ⚡ Fun fact: bad comedian
 
